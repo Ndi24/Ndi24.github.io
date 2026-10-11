@@ -1,4 +1,4 @@
-# welcome to my website : RoadyNS.github.io
-# By: Roady NS
+# welcome to my website : Ndi24.github.io
+# By: RNdi24
 # 2026
 
