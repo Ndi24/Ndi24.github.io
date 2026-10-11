@@ -1,4 +1,4 @@
 # welcome to my website : Ndi24.github.io
-# By: RNdi24
+# By: Ndi24
 # 2026
 
